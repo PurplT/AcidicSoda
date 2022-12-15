@@ -1,4 +1,4 @@
-# AcidicSoda
+# Acidic Soda Webpage
 Hello and welcome to the official acidic soda website
 
 # Im Purpl (one writing this)
@@ -29,6 +29,23 @@ CREATORS NOTE: THIS IS A PROJECT ME AND MY FRIEND CREATED, I WILL BE POSTING STO
 
 SIGHTING 55
 WITNESS: PURPl                                                                                  
+
+## INCIDENT 001
+
+
+"Alright. Testing will start in....."
+"The power is out."
+"..... What is that..." 
+"OH MY GO-"
+  
+ It has been two weeks since this incident Has occured. Unknown victim's Whereabouts remain unknown. - Local 78 Police Station
+
+
+
+
+# STAY TUNED! for more stories like this.
+
+
 
 
 
